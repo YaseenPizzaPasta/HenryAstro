@@ -1,1 +1,1 @@
-im not doing other games lmao
+ill do more gmaes later
