@@ -1,4 +1,4 @@
-.Free games for school, dont disclose this or 
+1.Free games for school, dont disclose this or 
 
 
 
@@ -97,4 +97,4 @@
 
 
 
-your gay
+2. your gay
