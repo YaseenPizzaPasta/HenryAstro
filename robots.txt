@@ -1,0 +1,3 @@
+User-agent: *
+Allow: /
+Sitemap: https://yaseenpizzapasta.github.io/HenryAstro/sitemap.xml
