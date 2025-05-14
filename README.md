@@ -23,5 +23,4 @@ Check out the full project at [HenryAstro on GitHub](https://github.com/YaseenPi
 - [SpaceX Official Website](https://www.spacex.com/)
 - [NASA’s Astronomy Picture of the Day](https://apod.nasa.gov/)
 
- ## Scary people
- - [Instagram](https://www.instagram.com/yaseenpissapazta/)
+# POOOOOOOOOOOOOOOOOOOOOOOP
