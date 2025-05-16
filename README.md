@@ -1,5 +1,7 @@
 Don't gatekeep or disclose this. 
 
+# [YaseenPizzaPasta](https://www.youtube.com/channel/UCAu95vT7-cSWieDDz3sbUzw)
+
 # HenryAstro - Explore the Universe
 
 HenryAstro is a space exploration project by YaseenPizzaPasta. This project aims to provide information on astronomy, space science, and the wonders of the universe. Stay tuned for upcoming updates, tutorials, and space-related content.
